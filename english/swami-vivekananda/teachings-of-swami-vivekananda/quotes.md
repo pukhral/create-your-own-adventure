@@ -70,6 +70,10 @@ not even the thunderbolts of heaven -- but stand up and work!
 14. Where can we go to find God if we cannot see Him ,
     In our own hearts and in every living being.
 
+15. Arise, Awake, And Stop Not Until The Goal Is Achieved.
+
+15. Take up one idea. Make that one idea your life - think of it, dream 	of it, live on that idea. Let the brain, muscles, nerves, evvery  		part of your body, be full of that idea alone. This is the way to 		success, and this is the way great spritual giants are produced. 		Others are mere talking machines. 
+
 
 
 [Read More](http://www.awakeningindia.org/life/Teachings.aspx)
